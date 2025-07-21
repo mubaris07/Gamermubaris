@@ -20,3 +20,7 @@ if i am online i will dm you
 NAME IS MUBUXTESTNET
 ONLY HAVE 200- FOLLOWERS 
 HOPING FOR A 1K+ FOLLOWERS
+
+# DISCORD 
+I dont have a Premium discord
+but i am happy with my Project 🥹
